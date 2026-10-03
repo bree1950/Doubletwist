@@ -215,4 +215,4 @@ doubleTwist is offered as a **full free version** with **all features** and **up
 Take control of your multimedia experience today! **Download doubleTwist FREE** and manage all your devices seamlessly.
 
 ---
-**Last updated:** 2026-10-03 16:54:53 UTC
+**Last updated:** 2026-10-03 19:37:34 UTC
